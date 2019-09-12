@@ -1,9 +1,3 @@
-#usr/bin/bash
-read -p "Jika tidak tau passwordnya tanyakan pada yang punya sc.
-WA : 083862170349
-Password: " pass
-if [ $pass = "naskleeng13" ]
-then
 clear
 toilet -f slant --gay "Success"
 sleep 0
