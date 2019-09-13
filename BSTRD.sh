@@ -10,7 +10,7 @@ toilet -f slant --gay "Success"
 sleep 0
 clear
 else
-  echo "\033[31;  salah njeer"
+  echo "\033[31; salah njeer"
   echo "\033[37; 1m"
   sleep 0
   sh BSTRD.sh
