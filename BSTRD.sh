@@ -9,10 +9,7 @@ clear
 toilet -f slant --gay "Success"
 sleep 0
 clear
-else
-  echo "salah njeer"
-  echo "\033[37; 1m"
-  sleep 0
+sleep 0
   sh BSTRD.sh
   fi
 clear
