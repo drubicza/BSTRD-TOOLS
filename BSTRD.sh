@@ -1,3 +1,330 @@
-z="
-";DFz='eh-G';lEz='[20]';rNz='OTHE';HKz='etup';HJz='/fat';pGz='s4';LKz=' 13]';aKz='/THE';MGz='etch';PDz='DULU';eIz='mMas';TEz='.7';XKz='dark';mIz='/MRB';cEz='K TE';dKz='arkP';hEz='[19]';aGz='uby ';fCz='et B';OGz='hon ';QEz='K V1';ZMz=' 25 ';gEz='dav';FJz='= 9 ';hNz='d +x';xNz='OGA';KBz='"';jEz='ort ';VKz='ark-';yDz='[10]';iDz='[6] ';MNz='tabl';ez=' "DJ';lBz='y "S';GLz='/N74';JJz='yber';uHz='sh v';lIz='7 ]';dDz=' Spa';SHz='ts';WCz='20';jMz='/Muh';uz='lama';dz='ss =';fEz=' web';AFz='x';bz='if [';oHz='/Rus';GCz='?tex';SKz='= 14';aEz='P';vKz='arkF';wIz='/LIT';LCz='%20I';Bz='r';sCz='sety';wDz='N DA';BIz='spam';OHz='4.py';MBz='ya c';uMz='ytho';qMz='up';VJz=' 10 ';PEz='[13]';iGz='gem ';cIz='cd C';WEz='EMIU';YHz='on x';CHz='clon';Gz='dak ';RCz='d%20';fNz='cd A';JIz='l.py';fJz='s.py';lMz='dfat';gFz=' "[#';nz='a an';RJz=' ] |';jLz='-ex.';NCz='ant%';NJz='arkc';eFz=' lol';tCz='o';XLz='3';xJz='ex';HIz='on s';CJz='LITE';QGz='on2 ';UNz='po';iKz=' 16]';MIz='/KAN';hDz='mSMS';CEz='TERM';TDz='k V4';WFz='aspl';KFz='Z';lNz='ewps';AGz='te &';AJz='CRIP';FHz='//gi';RLz='gera';uKz='obz/';vLz='ck.p';cCz='fi';xIz='cd L';sJz='de_m';aDz='USMA';bLz='/MiS';XBz='gan ';Sz='WA :';hKz='= 16';YCz='sh B';JGz=' cow';sNz='R';VCz='🙏:%';pLz='FbHa';GHz='thub';rGz=' mec';JMz='/The';LFz='[26]';VLz='t3';xFz='pkg ';EHz='tps:';RHz='on';GIz='rCAL';vz='t da';DHz='e ht';AHz='on2';AEz='N TO';GDz='om/M';lHz=' req';SGz=' nan';tHz='us';JDz='" | ';rJz='p no';HDz='RBST';GJz='9 ]';IFz=' spa';TCz='leas';SNz='l x1';rz='a';WLz='epot';TGz='o fi';YKz='= 15';INz='-rep';dBz='scri';HHz='.com';cFz=' EXI';wLz='= 22';yLz='/kar';UBz='o ke';oKz='arkp';OBz=' "sa';LJz='kcyb';MDz='STAL';ICz='llo%';IGz='wget';RIz='cd S';IIz='rcal';YLz='t3.p';ULz='Repo';PHz='= 2 ';QFz='mpil';rHz='rus';kGz='mech';XEz='M';EDz='gith';JBz='ijak';mLz='/Sys';iFz='ih n';SDz=' Dar';KDz=' "[0';az='s';DBz=' "ya';UJz='or =';cGz='node';qJz='unzi';NNz='e-re';uBz='bamb';bNz='xu/A';Uz='8621';kHz='ze';aCz='ALS.';eJz='tool';gHz='et';FBz='ante';yJz='= 12';Vz='7034';hLz='Expl';sDz='IPT';YJz='ijok';PBz='udar';lKz='8/da';wNz=' SEM';KLz='cd w';IDz='RD';hz='then';DNz='term';ECz='6217';JKz='mile';rKz=' 17]';aHz='= 3 ';HBz='ro"';bCz='sh';SIz='pamS';xBz='open';EIz='cd s';BNz='cd B';pNz='KASI';ENz='ux.p';tEz=' tom';yHz='/404';qLz='ck';Nz=' pad';fMz='pamm';WJz=']';mGz='e re';QCz='0Sen';GBz='ng"';uGz='eque';nBz='ss"';LHz='ark4';CBz='p 2';sMz=' 27 ';yz='dara';sLz='bHac';DMz='cd t';kBz='--ga';tGz='ze r';Oz='a ya';EJz='PT.p';kFz=' | l';jz='p 1';mEz=' SAD';dLz='/wha';TJz='$nom';mBz='ucce';qDz=' LIT';ANz='Bann';VIz='ain.';IEz='H';WGz='l na';cJz='cd T';dIz='-Spa';UMz=' 24 ';jIz='y';QMz='Efbe';bIz='asal';IKz='sh S';Xz='Pass';qIz='RMBL';VEz='K PR';Tz=' 083';ODz='HAN ';tLz='k';mJz='igeh';yMz='XsZ/';BJz='T';YFz='[29]';EBz='ng g';gLz='hats';vBz='ank'\''';hCz=' TOO';NLz='v.py';WDz='rce';XNz='it';mKz='rkpr';dNz='ixie';eBz='pnya';MHz='cd D';SCz='%20p';IHz='/cyb';BOz='BAH ';mFz='t';XIz='= 6 ';nEz='AP W';OLz='= 19';iEz=' Rep';UKz='-fb';CIz='erCA';yEz='ermu';cNz='utoP';nLz='temV';KGz='say ';TBz='ng l';WIz='py';oz='da d';vNz='MPIR';DCz='2838';kMz='amma';OIz='WBIE';JLz='v.gi';SMz='ap.p';KMz='Splo';SBz='anji';XCz='exit';XMz='3.py';UEz='[15]';qKz='= 17';xKz=' -r ';ZCz='RAND';EFz='elap';pz='isin';cBz='sat ';YEz='[16]';OEz='YT';JNz='o &&';FNz='= 28';oCz='*Nam';QLz='/Pan';JFz='mmer';DKz='6X-M';PIz='/Spa';UCz='e%20';ADz='*Git';xEz='ri t';mCz='====';Mz='akan';eMz='rZ';cKz='zz/D';mHz='uest';rLz='cd F';THz='/asm';RBz='ama ';tFz=' [ $';BDz='hub:';pHz='mana';kDz='ALL';KKz='= 13';ALz='irem';sHz='cd r';bBz='bang';ACz='ps:/';LNz=' uns';FGz='inst';vDz='PULA';BGz='& pk';Jz='word';MEz='D MU';Fz='a ti';OKz='gi/S';mMz='hul/';qHz='-ID/';ZEz='K VI';iHz='gem';aIz='pamM';gCz='STRD';kLz='= 21';GKz='sh s';wHz='= 4 ';tDz='[9] ';nJz='cd b';uLz='fbha';rDz='ESCR';eDz='mCAL';YNz='= 29';oIz='cd R';eGz='nzip';RNz='stal';kJz='eng/';wCz='8386';UIz='on m';FMz='on t';CKz='-X66';TLz='ins/';KEz=' DOW';oFz='or';KIz='= 5 ';eNz='Wp';GGz='all ';ZIz='/C-S';rCz=' Pra';LIz='5]';ZFz=' Hac';PJz='.sh';dGz='js u';xDz='RKFB';eCz='figl';rBz='rdny';FEz='[11]';Dz=' -p ';iBz='f sl';sFz='] ||';IBz='ng b';xHz='4]';gGz='let ';SJz='| [ ';pFz=' $no';wKz='B';yBz=' htt';jCz='lolc';fDz='L';vIz='3199';vGz='sts ';FDz='ub.c';oMz='BH';ZBz='code';tBz='lah ';uEz='bol ';OMz='ap';tz=' "se';JHz='er26';mz=' nam';sGz='hani';vJz='ip';VNz='meta';KNz=' apt';FKz='cd Y';nDz='K RM';LEz='NLOA';nHz='git';fGz=' toi';nCz='==';vMz='n2 w';uNz='H MA';fLz='ploi';kNz='pixi';ZJz='o14/';tNz='SUDA';LMz='it/E';tIz='8 ]';IJz='onic';SEz='[14]';dFz='T" |';Cz='read';NDz='L BA';PKz='ETAN';XDz='[3] ';jKz='/yar';gIz='on c';VBz='ntod';iIz='as.p';ZHz='e.py';NGz=' pyt';wFz='0 ]';kKz='rak6';bFz='[30]';NHz='Dark';qEz=' FbH';aMz='/rez';GMz='y.py';qCz='gung';rIz='.py';kCz='at';eEz='[18]';MMz='fbeh';Ez='"Jik';PCz='ur%2';TIz='ms';gMz='erZ';BBz='ama';oDz='BL';Hz='tau ';HCz='t=He';LBz='ng s';rMz='= 27';lLz=' 21 ';nGz='ques';eKz='remi';uJz='es.z';fIz='al';DLz='= 18';tJz='odul';lGz='aniz';DDz='s://';VFz=' met';mDz=' DAR';Wz='9';HGz='git ';CGz='g up';dMz='amme';mNz='= 30';fBz='p 3';XHz='forc';uFz='nomo';FIz='pame';REz='.6';WHz='cd x';wz='tang';fKz='um';BLz='ents';EKz='CC/Y';dJz='xID';PFz='h ta';LLz='v';Yz=' : "';ELz=' 18 ';RKz='N.py';QDz=' CUK';bHz='3 ]';lCz=' "==';QHz='2 ]';LGz='neof';pKz='ro';lFz='olca';PLz=' 19 ';yIz='ITES';yKz='requ';iNz=' *';MJz='er';WNz='splo';EEz='D';CDz='http';TFz=' ins';nNz=' 30 ';wJz=' ind';wMz='get ';AOz=' TAM';DEz='UX I';nIz='/RMB';Lz='tany';sIz='= 8 ';WBz=' jan';jDz='mMAS';YGz='pens';jHz='php';Zz=' pas';oEz='A';oNz=' "MA';hFz=']pil';SLz='nAlv';nKz='cd d';aNz='/nxx';wEz='n ki';HNz='root';UDz='[2] ';FFz='[24]';TKz=' 14]';xCz='2170';NKz='hayo';MLz='on w';NFz='[27]';COz='CROT';EMz='erke';KHz='11/D';wBz='xdg-';GNz=' 28 ';cz=' $pa';pDz='[8] ';Kz='nya ';QJz='= 10';CLz='.txt';ZNz=' 29 ';lz='ukan';WKz='fb';bJz='uxID';hIz='allm';OJz='sh D';kz='"mas';cDz='[4] ';pMz=' set';kIz='= 7 ';HLz='NK/w';xGz='= 1 ';GEz=' BOT';KCz='min,';pJz='geh';QBz='a $n';jGz='pip ';YMz='= 25';JEz='[12]';pBz=' '\''pa';YBz='dire';HEz=' IGE';pIz='MBL';sBz='a sa';RDz='[1] ';BCz='/wa.';DGz='grad';UFz='tall';sz='echo';gz='d" ]';hGz='mc';oGz='ts b';gJz='= 11';bMz='adki';SFz='[28]';Az='clea';BHz='sts';jFz='omor';UGz='glet';yGz='1 ]';RGz='bash';vFz='r = ';pCz='a :A';oBz='else';XJz='/per';iMz=' 26 ';tMz='on p';bEz='[17]';JCz='20Ad';VGz=' cur';AKz=' 12 ';RFz='an t';oLz='uln/';TMz='= 24';bKz='magi';eLz='tsEx';gDz='[5] ';PNz='& ap';hMz='= 26';Pz='ng p';qGz='pip2';cMz='m/sp';CNz='anne';WMz='ark3';AMz='jok/';XGz='no o';ONz='po &';DJz='SCRI';UHz='in19';OFz=' uba';QKz='SETA';nFz=' nom';ZKz=' 15]';aLz=' 20 ';OCz='20Yo';jNz='auto';MFz=' FBH';TNz='1-re';MKz='/pas';dEz='RMUX';kEz='FB';xLz=' 22 ';YDz=' Too';qBz='sswo';iz='slee';fz='Ihar';dHz='te';yFz='upda';ZLz='= 20';hHz='ruby';qz='i :"';NBz='oli"';MCz='%20W';sKz='/Jee';GFz='k v3';CFz=' Efb';nMz='FBH';FLz='curl';rEz='ack';NIz='G-NE';wGz='bs4';NMz='-Gel';yNz='ANDA';cHz='apt ';sEz='[22]';gBz='toil';xz=' sau';vCz='  :0';AIz='rgr/';rFz='= 0 ';Qz='unya';fFz='cat';VMz='11/d';aFz='k wi';QNz='t in';Iz='pass';Rz=' sc.';HMz='= 23';EGz='e';LDz='] IN';PGz='pyth';gNz='chmo';oJz='ot-i';lDz='[7] ';ILz='ebda';fHz='ade';BEz='OLS ';hBz='et -';lJz='bot-';dCz='p 0';gKz='FB.p';KJz='/Dar';NEz='SIK ';HFz='[25]';bDz='NA';YIz='6 ]';BFz='[23]';qFz='mor ';cLz='etya';uDz=' KUM';bGz='php ';uIz='/4L1';BMz='terk';jBz='ant ';XFz='oit';ZGz='sh r';iCz='LS| ';hJz=' 11 ';pEz='[21]';PMz='cd E';FCz='0349';ZDz='ls R';VDz=' Xfo';VHz='/xfo';uCz='*WA ';qNz='H BR';DIz='LL';QIz='mSms';xMz='/Mr-';vHz='2.sh';IMz=' 23 ';vEz='kana';CMz='ey';RMz='hGel';BKz='/BCA';jJz='gant';eHz='upgr';tKz='lsBo';iJz='/iki';yCz='349';aJz='Term';iLz='tart';CCz='me/6';aBz=' ya ';ABz='" $n';
-eval "$Az$Bz$z$Cz$Dz$Ez$Fz$Gz$Hz$Iz$Jz$Kz$Lz$Mz$Nz$Oz$Pz$Qz$Rz$z$Sz$Tz$Uz$Vz$Wz$z$Xz$Jz$Yz$Zz$az$z$bz$cz$dz$ez$fz$gz$z$hz$z$Az$Bz$z$iz$jz$z$Cz$Dz$kz$lz$mz$nz$oz$pz$qz$mz$rz$z$sz$tz$uz$vz$wz$xz$yz$ABz$BBz$z$iz$CBz$z$sz$DBz$EBz$FBz$GBz$z$iz$CBz$z$sz$DBz$Pz$HBz$z$iz$CBz$z$sz$DBz$IBz$JBz$KBz$z$iz$CBz$z$sz$DBz$LBz$lz$MBz$NBz$z$iz$CBz$z$sz$OBz$PBz$QBz$RBz$SBz$TBz$UBz$VBz$WBz$XBz$YBz$ZBz$aBz$bBz$cBz$dBz$eBz$KBz$z$iz$fBz$z$Az$Bz$z$iz$jz$z$gBz$hBz$iBz$jBz$kBz$lBz$mBz$nBz$z$iz$jz$z$Az$Bz$z$oBz$z$Az$Bz$z$sz$pBz$qBz$rBz$sBz$tBz$uBz$vBz$z$iz$CBz$z$Az$Bz$z$wBz$xBz$yBz$ACz$BCz$CCz$DCz$ECz$FCz$GCz$HCz$ICz$JCz$KCz$LCz$MCz$NCz$OCz$PCz$QCz$RCz$Xz$Jz$SCz$TCz$UCz$VCz$WCz$z$XCz$z$iz$CBz$z$YCz$ZCz$aCz$bCz$z$cCz$z$iz$dCz$z$Az$Bz$z$eCz$fCz$gCz$hCz$iCz$jCz$kCz$z$sz$lCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$nCz$z$oCz$pCz$qCz$rCz$sCz$tCz$z$uCz$vCz$wCz$xCz$yCz$z$ADz$BDz$CDz$DDz$EDz$FDz$GDz$HDz$IDz$z$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$mCz$JDz$jCz$kCz$z$iz$CBz$z$sz$KDz$LDz$MDz$NDz$ODz$PDz$QDz$z$RDz$SDz$TDz$z$UDz$VDz$WDz$z$XDz$YDz$ZDz$aDz$bDz$z$cDz$dDz$eDz$fDz$z$gDz$dDz$hDz$z$iDz$dDz$jDz$kDz$z$lDz$mDz$nDz$oDz$z$pDz$qDz$rDz$sDz$z$tDz$uDz$vDz$wDz$xDz$z$yDz$uDz$vDz$AEz$BEz$CEz$DEz$EEz$z$FEz$GEz$HEz$IEz$z$JEz$KEz$LEz$MEz$NEz$OEz$z$PEz$mDz$QEz$REz$z$SEz$mDz$QEz$TEz$z$UEz$mDz$VEz$WEz$XEz$z$YEz$mDz$ZEz$aEz$z$bEz$mDz$cEz$dEz$z$eEz$fEz$gEz$z$hEz$iEz$jEz$kEz$z$lEz$mEz$nEz$oEz$z$pEz$qEz$rEz$z$sEz$tEz$uEz$vEz$wEz$xEz$yEz$AFz$z$BFz$CFz$DFz$EFz$z$FFz$SDz$GFz$z$HFz$IFz$JFz$KFz$z$LFz$MFz$z$NFz$OFz$PFz$QFz$RFz$yEz$AFz$z$SFz$TFz$UFz$VFz$WFz$XFz$z$YFz$ZFz$aFz$cCz$z$bFz$cFz$dFz$eFz$fFz$z$sz$gFz$hFz$iFz$jFz$Yz$kFz$lFz$mFz$z$Cz$nFz$oFz$z$bz$pFz$qFz$rFz$sFz$tFz$uFz$vFz$wFz$z$hz$z$Az$Bz$z$xFz$yFz$AGz$BGz$CGz$DGz$EGz$z$xFz$FGz$GGz$HGz$IGz$JGz$KGz$LGz$MGz$NGz$OGz$PGz$QGz$RGz$SGz$TGz$UGz$VGz$WGz$XGz$YGz$ZGz$aGz$bGz$cGz$dGz$eGz$fGz$gGz$hGz$z$iGz$FGz$GGz$jCz$kCz$z$jGz$FGz$GGz$kGz$lGz$mGz$nGz$oGz$pGz$z$qGz$TFz$UFz$rGz$sGz$tGz$uGz$vGz$wGz$z$Az$Bz$z$YCz$ZCz$aCz$bCz$z$cCz$z$bz$pFz$qFz$xGz$sFz$tFz$uFz$vFz$yGz$z$hz$z$Az$Bz$z$xFz$yFz$AGz$BGz$CGz$DGz$EGz$z$xFz$FGz$GGz$HGz$PGz$AHz$z$qGz$TFz$UFz$rGz$sGz$tGz$uGz$BHz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$IHz$JHz$KHz$LHz$z$MHz$LHz$z$PGz$QGz$NHz$OHz$z$XCz$z$cCz$z$bz$pFz$qFz$PHz$sFz$tFz$uFz$vFz$QHz$z$hz$z$Az$Bz$z$xFz$yFz$AGz$BGz$CGz$DGz$EGz$z$xFz$FGz$GGz$HGz$PGz$RHz$z$jGz$FGz$GGz$kGz$lGz$mGz$nGz$SHz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$THz$UHz$VHz$WDz$z$WHz$XHz$EGz$z$PGz$YHz$XHz$ZHz$z$XCz$z$cCz$z$bz$pFz$qFz$aHz$sFz$tFz$uFz$vFz$bHz$z$hz$z$Az$Bz$z$cHz$yFz$dHz$z$cHz$eHz$fHz$z$xFz$FGz$GGz$gBz$gHz$z$xFz$FGz$GGz$hHz$z$xFz$FGz$GGz$iHz$z$xFz$FGz$GGz$jHz$z$xFz$FGz$GGz$eCz$gHz$z$iGz$FGz$GGz$jCz$kCz$z$xFz$FGz$GGz$PGz$AHz$z$qGz$TFz$UFz$rGz$sGz$kHz$z$qGz$TFz$UFz$lHz$mHz$az$z$xFz$FGz$GGz$nHz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$oHz$pHz$qHz$rHz$z$sHz$tHz$z$uHz$vHz$z$cCz$z$bz$pFz$qFz$wHz$sFz$tFz$uFz$vFz$xHz$z$hz$z$Az$Bz$z$xFz$yFz$AGz$BGz$CGz$DGz$EGz$z$xFz$FGz$GGz$HGz$PGz$RHz$z$jGz$FGz$GGz$kGz$lGz$mGz$nGz$SHz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$yHz$AIz$BIz$CIz$DIz$z$EIz$FIz$GIz$fDz$z$PGz$HIz$FIz$IIz$JIz$z$XCz$z$cCz$z$bz$pFz$qFz$KIz$sFz$tFz$uFz$vFz$LIz$z$hz$z$Az$Bz$z$xFz$yFz$AGz$BGz$CGz$DGz$EGz$z$xFz$FGz$GGz$HGz$PGz$RHz$z$xFz$FGz$GGz$eCz$gHz$z$iGz$FGz$GGz$jCz$kCz$z$jGz$FGz$GGz$kGz$lGz$mGz$nGz$SHz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$MIz$NIz$OIz$PIz$QIz$z$RIz$SIz$TIz$z$PGz$UIz$VIz$WIz$z$XCz$z$cCz$z$bz$pFz$qFz$XIz$sFz$tFz$uFz$vFz$YIz$z$hz$z$Az$Bz$z$xFz$FGz$GGz$HGz$PGz$RHz$z$jGz$FGz$GGz$kGz$lGz$mGz$nGz$SHz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$MIz$NIz$OIz$ZIz$aIz$bIz$z$cIz$dIz$eIz$fIz$z$PGz$gIz$hIz$iIz$jIz$z$XCz$z$cCz$z$bz$pFz$qFz$kIz$sFz$tFz$uFz$vFz$lIz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$mIz$gCz$nIz$fDz$z$oIz$pIz$z$PGz$QGz$qIz$rIz$z$XCz$z$cCz$z$bz$pFz$qFz$sIz$sFz$tFz$uFz$vFz$tIz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$uIz$vIz$wIz$rDz$sDz$z$xIz$yIz$AJz$BJz$z$PGz$QGz$CJz$DJz$EJz$jIz$z$XCz$z$cCz$z$bz$pFz$qFz$FJz$sFz$tFz$uFz$vFz$GJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$HJz$IJz$JJz$KJz$LJz$MJz$z$MHz$NJz$JJz$z$OJz$NJz$JJz$PJz$z$XCz$z$cCz$z$bz$pFz$qFz$QJz$RJz$SJz$TJz$UJz$VJz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$XJz$YJz$ZJz$aJz$bJz$z$cJz$yEz$dJz$z$PGz$QGz$eJz$fJz$z$XCz$z$cCz$z$bz$pFz$qFz$gJz$RJz$SJz$TJz$UJz$hJz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$iJz$jJz$kJz$lJz$mJz$z$nJz$oJz$pJz$z$qJz$rJz$sJz$tJz$uJz$vJz$z$cGz$wJz$xJz$z$XCz$z$cCz$z$bz$pFz$qFz$yJz$RJz$SJz$TJz$UJz$AKz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$BKz$CKz$DKz$EKz$BJz$z$FKz$BJz$z$GKz$HKz$PJz$z$IKz$JKz$PJz$z$XCz$z$cCz$z$bz$pFz$qFz$KKz$RJz$SJz$TJz$UJz$LKz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$MKz$NKz$OKz$PKz$z$RIz$PKz$z$PGz$QGz$QKz$RKz$z$XCz$z$cCz$z$bz$pFz$qFz$SKz$RJz$SJz$TJz$UJz$TKz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$XJz$YJz$ZJz$NHz$UKz$z$MHz$VKz$WKz$z$PGz$QGz$XKz$rIz$z$XCz$z$cCz$z$bz$pFz$qFz$YKz$RJz$SJz$TJz$UJz$ZKz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$aKz$bKz$cKz$dKz$eKz$fKz$z$MHz$dKz$eKz$fKz$z$PGz$QGz$XKz$gKz$jIz$z$XCz$z$cCz$z$bz$pFz$qFz$hKz$RJz$SJz$TJz$UJz$iKz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$jKz$kKz$lKz$mKz$tCz$z$nKz$oKz$pKz$z$PGz$QGz$XKz$rIz$z$XCz$z$cCz$z$bz$pFz$qFz$qKz$RJz$SJz$TJz$UJz$rKz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$sKz$tKz$uKz$NHz$kEz$z$MHz$vKz$wKz$z$qGz$TFz$UFz$xKz$yKz$ALz$BLz$CLz$z$PGz$QGz$NHz$gKz$jIz$z$XCz$z$cCz$z$bz$pFz$qFz$DLz$RJz$SJz$TJz$UJz$ELz$WJz$z$hz$z$Az$Bz$z$xFz$FGz$GGz$FLz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$GLz$HLz$ILz$JLz$mFz$z$KLz$ILz$LLz$z$PGz$MLz$ILz$NLz$z$XCz$z$cCz$z$bz$pFz$qFz$OLz$RJz$SJz$TJz$UJz$PLz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$QLz$RLz$SLz$TLz$ULz$VLz$z$oIz$WLz$XLz$z$RGz$TFz$UFz$PJz$z$PGz$QGz$ULz$YLz$jIz$z$XCz$z$cCz$z$bz$pFz$qFz$ZLz$RJz$SJz$TJz$UJz$aLz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$bLz$cLz$dLz$eLz$fLz$mFz$z$KLz$gLz$hLz$XFz$z$GKz$iLz$jLz$bCz$z$XCz$z$cCz$z$bz$pFz$qFz$kLz$RJz$SJz$TJz$UJz$lLz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$mLz$nLz$oLz$pLz$qLz$z$rLz$sLz$tLz$z$PGz$QGz$uLz$vLz$jIz$z$XCz$z$cCz$z$bz$pFz$qFz$wLz$RJz$SJz$TJz$UJz$xLz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$yLz$AMz$BMz$CMz$z$DMz$EMz$jIz$z$PGz$FMz$EMz$GMz$z$XCz$z$cCz$z$bz$pFz$qFz$HMz$RJz$SJz$TJz$UJz$IMz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$JMz$KMz$LMz$MMz$NMz$OMz$z$PMz$MMz$NMz$OMz$z$PGz$QGz$QMz$RMz$SMz$jIz$z$XCz$z$cCz$z$bz$pFz$qFz$TMz$RJz$SJz$TJz$UJz$UMz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$IHz$JHz$VMz$WMz$z$nKz$WMz$z$PGz$QGz$XKz$XMz$z$XCz$z$cCz$z$bz$pFz$qFz$YMz$RJz$SJz$TJz$UJz$ZMz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$aMz$bMz$cMz$dMz$eMz$z$EIz$fMz$gMz$z$PGz$QGz$BIz$rIz$z$XCz$z$cCz$z$bz$pFz$qFz$hMz$RJz$SJz$TJz$UJz$iMz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$jMz$kMz$lMz$mMz$nMz$z$rLz$oMz$z$RGz$pMz$qMz$z$cCz$z$bz$pFz$qFz$rMz$RJz$SJz$TJz$UJz$sMz$WJz$z$hz$z$Az$Bz$z$xFz$FGz$GGz$PGz$tMz$uMz$vMz$wMz$nHz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$xMz$yMz$ANz$MJz$z$BNz$CNz$Bz$z$PGz$QGz$DNz$ENz$jIz$z$XCz$z$cCz$z$bz$pFz$qFz$FNz$RJz$SJz$TJz$UJz$GNz$WJz$z$hz$z$Az$Bz$z$cHz$FGz$GGz$HNz$INz$JNz$KNz$TFz$UFz$LNz$MNz$NNz$ONz$PNz$QNz$RNz$SNz$TNz$UNz$z$xFz$FGz$GGz$VNz$WNz$XNz$z$cCz$z$bz$pFz$qFz$YNz$RJz$SJz$TJz$UJz$ZNz$WJz$z$hz$z$Az$Bz$z$HGz$CHz$DHz$EHz$FHz$GHz$HHz$aNz$bNz$cNz$dNz$eNz$z$fNz$cNz$dNz$eNz$z$gNz$hNz$iNz$z$PGz$QGz$jNz$kNz$lNz$rIz$z$XCz$z$cCz$z$bz$pFz$qFz$mNz$RJz$SJz$TJz$UJz$nNz$WJz$z$hz$z$Az$Bz$z$sz$oNz$pNz$qNz$rNz$sNz$z$tNz$uNz$vNz$wNz$xNz$z$yNz$AOz$BOz$COz$JDz$jCz$kCz$z$iz$dCz$z$XCz$z$cCz"
+clear
+read -p "Jika tidak tau passwordnya tanyakan pada yang punya sc.
+WA : 083862170349
+Password : " pass
+if [ $pass = "DJIhard" ]
+then
+    clear
+    sleep 1
+    read -p "masukan nama anda disini :" nama
+    echo "selamat datang saudara" $nama
+    sleep 2
+    echo "yang ganteng"
+    sleep 2
+    echo "yang pro"
+    sleep 2
+    echo "yang bijak"
+    sleep 2
+    echo "yang sukanya coli"
+    sleep 2
+    echo "saudara $nama anjing lo kentod jangan direcode ya bangsat scripnya"
+    sleep 3
+    clear
+    sleep 1
+    toilet -f slant --gay "Success"
+    sleep 1
+    clear
+else
+    clear
+    echo 'passwordnya salah bambank'
+    sleep 2
+    clear
+    xdg-open https://wa.me/6283862170349?text=Hello%20Admin,%20I%20Want%20Your%20Send%20Password%20please%20🙏:%20
+    exit
+    sleep 2
+    sh BRANDALS.sh
+fi
+sleep 0
+clear
+figlet BSTRD TOOLS| lolcat
+echo "============================================================
+*Nama :Agung Prasetyo
+*WA   :083862170349
+*Github:https://github.com/MRBSTRD
+============================================================" | lolcat
+sleep 2
+echo "[0] INSTALL BAHAN DULU CUK
+[1]  Dark V4
+[2]  Xforce
+[3]  Tools RUSMANA
+[4]  SpamCALL
+[5]  SpamSMS
+[6]  SpamMASALL
+[7]  DARK RMBL
+[8]  LITESCRIPT
+[9]  KUMPULAN DARKFB
+[10] KUMPULAN TOOLS TERMUX ID
+[11] BOT IGEH
+[12] DOWNLOAD MUSIK YT
+[13] DARK V1.6
+[14] DARK V1.7
+[15] DARK PREMIUM
+[16] DARK VIP
+[17] DARK TERMUX
+[18] webdav
+[19] Report FB
+[20] SADAP WA
+[21] FbHack
+[22] tombol kanan kiri termux
+[23] Efbeh-Gelap
+[24] Dark v3
+[25] spammerZ
+[26] FBH
+[27] ubah tampilan termux
+[28] install metasploit
+[29] Hack wifi
+[30] EXIT" | lolcat
+echo "[#]pilih nomor : " | lolcat
+read nomor
+if [ $nomor = 0 ] || [ $nomor = 0 ]; then
+    clear
+    pkg update && pkg upgrade
+    pkg install git wget cowsay neofetch python python2 bash nano figlet curl nano openssh ruby php nodejs unzip toilet mc
+    gem install lolcat
+    pip install mechanize requests bs4
+    pip2 install mechanize requests bs4
+    clear
+    sh BRANDALS.sh
+fi
+if [ $nomor = 1 ] || [ $nomor = 1 ]; then
+    clear
+    pkg update && pkg upgrade
+    pkg install git python2
+    pip2 install mechanize requests
+    git clone https://github.com/cyber2611/Dark4
+    cd Dark4
+    python2 Dark4.py
+    exit
+fi
+if [ $nomor = 2 ] || [ $nomor = 2 ]; then
+    clear
+    pkg update && pkg upgrade
+    pkg install git python
+    pip install mechanize requests
+    git clone https://github.com/asmin19/xforce
+    cd xforce
+    python xforce.py
+    exit
+fi
+if [ $nomor = 3 ] || [ $nomor = 3 ]; then
+    clear
+    apt update
+    apt upgrade
+    pkg install toilet
+    pkg install ruby
+    pkg install gem
+    pkg install php
+    pkg install figlet
+    gem install lolcat
+    pkg install python2
+    pip2 install mechanize
+    pip2 install requests
+    pkg install git
+    git clone https://github.com/Rusmana-ID/rus
+    cd rus
+    sh v2.sh
+fi
+if [ $nomor = 4 ] || [ $nomor = 4]; then
+    clear
+    pkg update && pkg upgrade
+    pkg install git python
+    pip install mechanize requests
+    git clone https://github.com/404rgr/spamerCALL
+    cd spamerCALL
+    python spamercall.py
+    exit
+fi
+if [ $nomor = 5 ] || [ $nomor = 5]; then
+    clear
+    pkg update && pkg upgrade
+    pkg install git python
+    pkg install figlet
+    gem install lolcat
+    pip install mechanize requests
+    git clone https://github.com/KANG-NEWBIE/SpamSms
+    cd SpamSms
+    python main.py
+    exit
+fi
+if [ $nomor = 6 ] || [ $nomor = 6 ]; then
+    clear
+    pkg install git python
+    pip install mechanize requests
+    git clone https://github.com/KANG-NEWBIE/C-SpamMasal
+    cd C-SpamMasal
+    python callmas.py
+    exit
+fi
+if [ $nomor = 7 ] || [ $nomor = 7 ]; then
+    clear
+    git clone https://github.com/MRBSTRD/RMBL
+    cd RMBL
+    python2 RMBL.py
+    exit
+fi
+if [ $nomor = 8 ] || [ $nomor = 8 ]; then
+    clear
+    git clone https://github.com/4L13199/LITESCRIPT
+    cd LITESCRIPT
+    python2 LITESCRIPT.py
+    exit
+fi
+if [ $nomor = 9 ] || [ $nomor = 9 ]; then
+    clear
+    git clone https://github.com/fatonicyber/Darkcyber
+    cd Darkcyber
+    sh Darkcyber.sh
+    exit
+fi
+if [ $nomor = 10 ] || [ $nomor = 10 ]; then
+    clear
+    git clone https://github.com/perijoko14/TermuxID
+    cd TermuxID
+    python2 tools.py
+    exit
+fi
+if [ $nomor = 11 ] || [ $nomor = 11 ]; then
+    clear
+    git clone https://github.com/ikiganteng/bot-igeh
+    cd bot-igeh
+    unzip node_modules.zip
+    node index
+    exit
+fi
+if [ $nomor = 12 ] || [ $nomor = 12 ]; then
+    clear
+    git clone https://github.com/BCA-X666X-MCC/YT
+    cd YT
+    sh setup.sh
+    sh Smile.sh
+    exit
+fi
+if [ $nomor = 13 ] || [ $nomor = 13]; then
+    clear
+    git clone https://github.com/pashayogi/SETAN
+    cd SETAN
+    python2 SETAN.py
+    exit
+fi
+if [ $nomor = 14 ] || [ $nomor = 14]; then
+    clear
+    git clone https://github.com/perijoko14/Dark-fb
+    cd Dark-fb
+    python2 dark.py
+    exit
+fi
+if [ $nomor = 15 ] || [ $nomor = 15]; then
+    clear
+    git clone https://github.com/THEmagizz/DarkPremium
+    cd DarkPremium
+    python2 darkFB.py
+    exit
+fi
+if [ $nomor = 16 ] || [ $nomor = 16]; then
+    clear
+    git clone https://github.com/yarrak68/darkpro
+    cd darkpro
+    python2 dark.py
+    exit
+fi
+if [ $nomor = 17 ] || [ $nomor = 17]; then
+    clear
+    git clone https://github.com/JeelsBoobz/DarkFB
+    cd DarkFB
+    pip2 install -r requirements.txt
+    python2 DarkFB.py
+    exit
+fi
+if [ $nomor = 18 ] || [ $nomor = 18 ]; then
+    clear
+    pkg install curl
+    git clone https://github.com/N74NK/webdav.git
+    cd webdav
+    python webdav.py
+    exit
+fi
+if [ $nomor = 19 ] || [ $nomor = 19 ]; then
+    clear
+    git clone https://github.com/PangeranAlvins/Repot3
+    cd Repot3
+    bash install.sh
+    python2 Repot3.py
+    exit
+fi
+if [ $nomor = 20 ] || [ $nomor = 20 ]; then
+    clear
+    git clone https://github.com/MiSetya/whatsExploit
+    cd whatsExploit
+    sh start-ex.sh
+    exit
+fi
+if [ $nomor = 21 ] || [ $nomor = 21 ]; then
+    clear
+    git clone https://github.com/SystemVuln/FbHack
+    cd FbHack
+    python2 fbhack.py
+    exit
+fi
+if [ $nomor = 22 ] || [ $nomor = 22 ]; then
+    clear
+    git clone https://github.com/karjok/terkey
+    cd terkey
+    python terkey.py
+    exit
+fi
+if [ $nomor = 23 ] || [ $nomor = 23 ]; then
+    clear
+    git clone https://github.com/TheSploit/Efbeh-Gelap
+    cd Efbeh-Gelap
+    python2 EfbehGelap.py
+    exit
+fi
+if [ $nomor = 24 ] || [ $nomor = 24 ]; then
+    clear
+    git clone https://github.com/cyber2611/dark3
+    cd dark3
+    python2 dark3.py
+    exit
+fi
+if [ $nomor = 25 ] || [ $nomor = 25 ]; then
+    clear
+    git clone https://github.com/rezadkim/spammerZ
+    cd spammerZ
+    python2 spam.py
+    exit
+fi
+if [ $nomor = 26 ] || [ $nomor = 26 ]; then
+    clear
+    git clone https://github.com/Muhammadfathul/FBH
+    cd FBH
+    bash setup
+fi
+if [ $nomor = 27 ] || [ $nomor = 27 ]; then
+    clear
+    pkg install python python2 wget git
+    git clone https://github.com/Mr-XsZ/Banner
+    cd Banner
+    python2 termux.py
+    exit
+fi
+if [ $nomor = 28 ] || [ $nomor = 28 ]; then
+    clear
+    apt install root-repo && apt install unstable-repo && apt install x11-repo
+    pkg install metasploit
+fi
+if [ $nomor = 29 ] || [ $nomor = 29 ]; then
+    clear
+    git clone https://github.com/nxxxu/AutoPixieWp
+    cd AutoPixieWp
+    chmod +x *
+    python2 autopixiewps.py
+    exit
+fi
+if [ $nomor = 30 ] || [ $nomor = 30 ]; then
+    clear
+    echo "MAKASIH BROTHER
+    SUDAH MAMPIR SEMOGA
+    ANDA TAMBAH CROT" | lolcat
+    sleep 0
+    exit
+fi
